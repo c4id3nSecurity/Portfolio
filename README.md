@@ -16,4 +16,4 @@
 
 ## Project on PC
 
-![image](https://github.com/c4id3nSecurity/Portfolio/assets/137456612/11865859-995d-4138-be5d-9a55e420d22c)
+![image](https://github.com/c4id3nSecurity/Portfolio/assets/137456612/4b1952e6-a406-42c6-b6b0-35ba88bde534)
